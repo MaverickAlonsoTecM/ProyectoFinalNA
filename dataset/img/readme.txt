@@ -1,0 +1,1 @@
+imagenes tomadas por JC
